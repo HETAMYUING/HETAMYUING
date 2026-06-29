@@ -1,4 +1,4 @@
-Yahoo! this is kiku! i'm not gonna make this one cuz but I'll introduce myself
+Yahoo! this is kiku! i'm not gonna make this one pretty but I'll introduce myself
 
 
 I'm a gay, greyromantic, asexual male. I'm in a queerplatonic relationship ♡.
