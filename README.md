@@ -12,3 +12,5 @@ dni ~ proship(Spamano, USUK, face family ships, rusbela, belaukr, ETC), problema
  if you couldn't tell i'm severely autistic, i also have diagnosed c-ptsd and bpd. this also effects how i interact with people! if i interact first ur a lucky ducky <3333 !
  
 <br><img src="https://cdn.phototourl.com/free/2026-06-29-0ed6762f-705c-4943-b0b9-f2319fe6754f.jpg">
+
+owhh yeah amer1pan_yaoi eould be my discord if anyone wanted to add me! <3
